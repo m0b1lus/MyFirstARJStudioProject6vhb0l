@@ -1,1 +1,0 @@
-# MyFirstARJStudioProject6vhb0l
